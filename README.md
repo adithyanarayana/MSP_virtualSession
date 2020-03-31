@@ -1,4 +1,6 @@
-# MSP_virtualSession
+![](0419_MS_MSP_logo_Lockups_CMYK_1line_blue_page-0001.jpg)
+
+# Introduction to MSP - Virtual Session
 
 
 ## Important Links
